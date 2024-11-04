@@ -1,1 +1,1 @@
-bit.ly/rupakkumar
+rupakkumar.in
